@@ -7,7 +7,6 @@ Yeah i will love to work with experience students.
  https://www.twitter.com/BakarAtiq
  https://www.facebook.com/mohammadabubakaratiq
  https://www.instagram.com/mohammadabubakaratiq
- https://www.youtube.com/channel/UCVzplQrcGMaHQS5Gtc2Nibg
 <!---
 AbubakarAtiq/AbubakarAtiq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
